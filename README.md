@@ -1,0 +1,1 @@
+Touch cars to earn points and Don't touch deer else you will die,
